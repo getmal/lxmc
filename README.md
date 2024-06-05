@@ -1,7 +1,7 @@
 # 5g天天奭5g运动视频在线5g天天奭5g运动视频在线
 山娃很听话天天呆在小屋里除了看书写了
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 5g天天奭5g运动视频在线5g天天奭5g运动视频在线　　和云的交往，在我心里烙下了永远无法消弥的痛。　
 　　很快，钓鱼的收获就冲淡了昨日的哀愁。
